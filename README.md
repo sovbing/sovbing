@@ -1,4 +1,4 @@
-## Hi there 👋
+## i dont know how this site works and i can barellllllyy code. ok? ok.
 
 <!--
 **sovbing/sovbing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
